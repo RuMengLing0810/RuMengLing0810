@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on HUAWEI
 - 📫 How to reach me RuMengLing0810@163.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: Have French fries without ketchup
+- ⚡ Fun fact: Have French fries without ketchup first_change
 
 <!---
 RuMengLing0810/RuMengLing0810 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
