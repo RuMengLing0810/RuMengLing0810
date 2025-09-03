@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RuMengLing0810
 - 👀 I’m interested in eating
 - 🌱 I’m currently learning C
-- 💞️ I’m looking to collaborate on HUAWEI
+- 💞️ I’m looking to collaborate on emm...
 - 📫 How to reach me RuMengLing0810@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Have French fries without ketchup 
