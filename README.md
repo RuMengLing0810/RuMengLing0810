@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RuMengLing0810
-- 👀 I’m interested in 明日方舟
+- 👀 I’m interested in eating
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on HUAWEI
 - 📫 How to reach me RuMengLing0810@163.com
